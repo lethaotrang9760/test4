@@ -5,3 +5,4 @@ You’ve gotta dance like there’s nobody watching. Love like you’ll never be
 Wish your weekend filled with laughter.
 Tôi thích nghĩ lớn. Nếu đằng nào bạn cũng phải nghĩ, vậy thì hãy nghĩ lớn.
 Hài lòng với mọi thứ mình có cũng là một điều hạnh phúc.
+Tạo cho mình chữ Phúc.
