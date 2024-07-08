@@ -6,4 +6,4 @@ Wish your weekend filled with laughter.
 Tôi thích nghĩ lớn. Nếu đằng nào bạn cũng phải nghĩ, vậy thì hãy nghĩ lớn.
 Hài lòng với mọi thứ mình có cũng là một điều hạnh phúc.
 Tạo cho mình chữ Phúc.
-Don't give up .
+Don't give up ..
